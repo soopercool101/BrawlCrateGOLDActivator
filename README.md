@@ -1,0 +1,2 @@
+# BrawlCrateGOLDActivator
+Enables BrawlCrate GOLD™
